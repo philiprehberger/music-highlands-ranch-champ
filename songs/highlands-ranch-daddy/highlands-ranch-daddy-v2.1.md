@@ -15,9 +15,9 @@ What it do...
 ---
 
 **[Hook]**
-Highlands Ranch, daddy doing his thang
-Highlands Ranch, daddy doing his thang
-Highlands Ranch, daddy doing his thang
+Highlands Ranch daddy, doing his thang
+Highlands Ranch daddy, doing his thang
+Highlands Ranch daddy, doing his thang
 Double shot cracked open and we already swang
 
 ---
@@ -46,9 +46,9 @@ Last little kiss on the forehead now I'm rollin' through the hood
 ---
 
 **[Hook]**
-Highlands Ranch, daddy doing his thang
-Highlands Ranch, daddy doing his thang
-Highlands Ranch, daddy doing his thang
+Highlands Ranch daddy, doing his thang
+Highlands Ranch daddy, doing his thang
+Highlands Ranch daddy, doing his thang
 Double shot cracked open and we already swang
 
 ---
@@ -100,9 +100,9 @@ Highlands Ranch forever, that's the life we built and bought
 ---
 
 **[Hook]**
-Highlands Ranch, daddy doing his thang
-Highlands Ranch, daddy doing his thang
-Highlands Ranch, daddy doing his thang
+Highlands Ranch daddy, doing his thang
+Highlands Ranch daddy, doing his thang
+Highlands Ranch daddy, doing his thang
 Double shot cracked open and we already swang
 
 ---
