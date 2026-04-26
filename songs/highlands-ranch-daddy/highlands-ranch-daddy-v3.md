@@ -1,11 +1,11 @@
-# Highlands Ranch Champ
+# Highlands Ranch Daddy
 *Philip Rehberger*
 
 ---
 
 [intro - Philip talking]
 Yeah... Highlands Ranch, Colorado, baby
-Philip Rehberger,  Highlands Ranch champ
+Philip Rayberger,  Highlands Ranch champ
 Liam, Ava, Iyla, Tessa —
 That's four deep, that's the squad
 TX500H pullin' out the garage
