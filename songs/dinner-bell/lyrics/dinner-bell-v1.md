@@ -1,12 +1,12 @@
 # Dinner Bell
-*Philip Rayberger*
+*Philip Rehberger*
 
 ---
 
 [Intro - Philip talking]
 Yeah...
 Highlands Ranch, dinner time, baby
-Philip Rayberger, six o'clock champ
+Philip Rehberger, six o'clock champ
 Maria, Liam, Ava, Iyla —
 And Tessa in the highchair pulled up close
 Hawaiian chicken on the table tonight

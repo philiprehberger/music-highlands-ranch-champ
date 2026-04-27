@@ -5,7 +5,7 @@
 
 [intro - Philip talking]
 Yeah... Highlands Ranch, Colorado, baby
-Philip Rayberger,  Highlands Ranch champ
+Philip Rehberger,  Highlands Ranch champ
 Liam, Ava, Iyla, Tessa —
 That's four deep, that's the squad
 TX500H pullin' out the garage
@@ -102,7 +102,7 @@ Tessa in the mirror grinning, that's what she waiting for
 Pull in the driveway, dinner gotta hit by six
 Maria walking in the door to four kids in the mix
 Iyla spinning circles, Liam asking it all
-Philip Rayberger, the Highlands Ranch champ, holding down it all
+Philip Rehberger, the Highlands Ranch champ, holding down it all
 
 ---
 
